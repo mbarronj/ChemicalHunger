@@ -1,0 +1,1 @@
+This is a collection of data and papers about the possibility of a pollutant or food ingredient that is a potential root cause of the obesity epidemic in the industrialized western world, inspired by the paper "A Chemical Hunger", a pre-print of which is included in the refrences
