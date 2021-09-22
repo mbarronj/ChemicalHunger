@@ -20,6 +20,7 @@ https://www.acc.org/latest-in-cardiology/articles/2016/08/31/08/12/the-acc-at-50
 https://usafacts.org/articles/obesity-rate-nearly-triples-united-states-over-last-50-years/
 https://www.niddk.nih.gov/health-information/health-statistics/overweight-obesity
 https://voxeu.org/article/100-years-us-obesity
+https://heart.bmj.com/content/early/2021/09/11/heartjnl-2021-319654 (CVD, Mortality, and Obesity inversely related to saturated fat intake)
 
 
 Important Concepts and Questions to Investigate:
